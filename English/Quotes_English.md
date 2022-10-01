@@ -13,3 +13,5 @@
 > If you are always trying to be normal you will never know how amazing you can be. - Maya Angelou.
 
 > Many of life's failures are people who did not realize how close they were to success when they gave up. -Thomas A. Edison
+
+> Life is a long lesson in humility.
