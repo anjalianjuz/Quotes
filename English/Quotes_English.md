@@ -10,3 +10,5 @@
 
 > "The purpose of our lives is to be happy." — Dalai Lama.
 
+> If you are always trying to be normal you will never know how amazing you can be. - Maya Angelou.
+
