@@ -15,3 +15,5 @@
 > Many of life's failures are people who did not realize how close they were to success when they gave up. -Thomas A. Edison
 
 > Life is a long lesson in humility.
+
+>The secret of getting ahead is getting started. —Mark Twain
