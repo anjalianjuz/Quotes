@@ -24,3 +24,4 @@
 
 > _Make it work, make it right, make it fast._
 
+> Programmer: A machine that turns coffee into code 😅
