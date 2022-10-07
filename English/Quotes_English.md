@@ -21,3 +21,6 @@
 >“Sometimes it pays to stay in bed on Monday, rather than spending the rest of the week debugging Monday’s code.” – Dan Salomon
 
 > Nothing is impossible. The word itself says 'I'm possible! — Audrey Hepburn
+
+> _Make it work, make it right, make it fast._
+
