@@ -25,3 +25,5 @@
 > _Make it work, make it right, make it fast._
 
 > Programmer: A machine that turns coffee into code 😅
+
+> Death is so terribly final, while life is full of possibilities. — George R.R. Martin
