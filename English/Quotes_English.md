@@ -25,3 +25,5 @@
 > _Make it work, make it right, make it fast._
 
 > Programmer: A machine that turns coffee into code 😅
+
+> If you want to shine like a sun, You need to burn like a sun.
