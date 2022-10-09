@@ -30,7 +30,8 @@
 
 > If you want to shine like a sun, You need to burn like a sun.
 
+> Keep your face always toward the sunshine, and shadows will fall behind you
+
 > Spread love everywhere you go. Let no one ever come to you without leaving happier. -Mother Teresa
 
 > Out of the mountain of despair, a stone of hope. - Martin Luther King Jr.
-
