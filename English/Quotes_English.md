@@ -16,9 +16,9 @@
 
 > Life is a long lesson in humility.
 
->The secret of getting ahead is getting started. —Mark Twain
+> The secret of getting ahead is getting started. —Mark Twain
 
->“Sometimes it pays to stay in bed on Monday, rather than spending the rest of the week debugging Monday’s code.” – Dan Salomon
+> “Sometimes it pays to stay in bed on Monday, rather than spending the rest of the week debugging Monday’s code.” – Dan Salomon
 
 > Nothing is impossible. The word itself says 'I'm possible! — Audrey Hepburn
 
@@ -26,7 +26,11 @@
 
 > Programmer: A machine that turns coffee into code 😅
 
+> Death is so terribly final, while life is full of possibilities. — George R.R. Martin
+
 > If you want to shine like a sun, You need to burn like a sun.
+
 > Spread love everywhere you go. Let no one ever come to you without leaving happier. -Mother Teresa
 
 > Out of the mountain of despair, a stone of hope. - Martin Luther King Jr.
+
