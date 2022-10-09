@@ -1,4 +1,14 @@
-> The greatest glory in living lies not in never falling, but in rising every time we fall. - Nelson Mandela
+> When you have a dream, you've got to grab it and never let go."
+
+> "Nothing is impossible. 
+
+> "There is nothing impossible to they who will try." 
+
+> "The bad news is time flies. 
+
+> "Life has got all those twists and turns. 
+
+> "Keep your face always toward the sunshine, and shadows will fall behind you."
 
 > The way to get started is to quit talking and begin doing. - Walt Disney
 
@@ -37,4 +47,5 @@
 > Out of the mountain of despair, a stone of hope. - Martin Luther King Jr.
 
 > We are what we repeatedly do.
+
 > Excellence, then, is not an act but a habit. - ARISTOTLE
