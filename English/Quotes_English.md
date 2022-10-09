@@ -27,3 +27,5 @@
 > Programmer: A machine that turns coffee into code 😅
 
 > If you want to shine like a sun, You need to burn like a sun.
+
+> Keep your face always toward the sunshine, and shadows will fall behind you
