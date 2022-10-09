@@ -28,3 +28,5 @@
 
 > If you want to shine like a sun, You need to burn like a sun.
 > Spread love everywhere you go. Let no one ever come to you without leaving happier. -Mother Teresa
+
+> Out of the mountain of despair, a stone of hope. - Martin Luther King Jr.
