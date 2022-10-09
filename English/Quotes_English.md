@@ -35,3 +35,6 @@
 > Spread love everywhere you go. Let no one ever come to you without leaving happier. -Mother Teresa
 
 > Out of the mountain of despair, a stone of hope. - Martin Luther King Jr.
+
+> We are what we repeatedly do.
+> Excellence, then, is not an act but a habit. - ARISTOTLE
