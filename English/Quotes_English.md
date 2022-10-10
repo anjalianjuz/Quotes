@@ -49,3 +49,5 @@
 > We are what we repeatedly do.
 
 > Excellence, then, is not an act but a habit. - ARISTOTLE
+>If you can dream it, you can do it.
+>Trust yourself that you can do it and get it. ―Baz Luhrmann.
