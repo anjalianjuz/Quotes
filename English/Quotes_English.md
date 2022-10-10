@@ -51,3 +51,5 @@
 > Excellence, then, is not an act but a habit. - ARISTOTLE
 >If you can dream it, you can do it.
 >Trust yourself that you can do it and get it. ―Baz Luhrmann.
+
+> More smiling, less worrying. More compassion, less judgment. More blessed, less stressed. More love, less hate.
