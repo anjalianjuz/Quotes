@@ -53,3 +53,5 @@
 >Trust yourself that you can do it and get it. ―Baz Luhrmann.
 
 > More smiling, less worrying. More compassion, less judgment. More blessed, less stressed. More love, less hate.
+
+> Don't judge each day by the harvest you reap but by the seeds that you plant.
