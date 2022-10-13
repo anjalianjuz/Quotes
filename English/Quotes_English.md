@@ -64,3 +64,4 @@
 
 > I never lose either I win or I learn.
 
+> Life is what happens when you're busy making other plans
