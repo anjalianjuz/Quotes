@@ -55,3 +55,5 @@
 > More smiling, less worrying. More compassion, less judgment. More blessed, less stressed. More love, less hate.
 
 > Don't judge each day by the harvest you reap but by the seeds that you plant.
+
+>The way to get started is to quit talking and begin doing.
