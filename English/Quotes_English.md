@@ -64,3 +64,4 @@
 
 > I never lose either I win or I learn.
 
+> The way to get started is to quit talking and begin doing.
