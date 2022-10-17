@@ -64,4 +64,7 @@
 
 > I never lose either I win or I learn.
 
+> The way to get started is to quit talking and begin doing.
+
 > Life is what happens when you're busy making other plans
+
